@@ -1,3 +1,13 @@
-## NOTAS:
+# NOTAS:
 
-No robarme la página wwwwwwwwwwww
+wawewiwowu 
+
+
+## Objetivos
+
+Pueden hacer lo que quieran...
+
+
+### Github
+
+Cambios realizados en github
